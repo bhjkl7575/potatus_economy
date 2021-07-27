@@ -1,1 +1,1 @@
-# potatus_economy
+# POTATUS ECONOMY
